@@ -18,8 +18,8 @@ Innovacion, liderazgo, creatividad, resolucion de problemas, analisis y logica. 
 
 ### CONTACTO
 
-E-MAIL: fmrigueros91@gmail.com
-WHATSAPP: +57 3195067885
-LINKEDIN: https://www.linkedin.com/in/fredyrigueros/
-INSTAGRAM: https://www.instagram.com/spm_sas/
+E-MAIL: fmrigueros91@gmail.com  
+WHATSAPP: +57 3195067885  
+LINKEDIN: https://www.linkedin.com/in/fredyrigueros/  
+INSTAGRAM: https://www.instagram.com/spm_sas/  
 
